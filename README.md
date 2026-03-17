@@ -10,6 +10,8 @@ My party trick is being a hyperpolyglot: I speak 7 languages. If you speak them 
 
 🔭 I'm currently looking for a new challenge.
 
+I'm allowed to work without migratory struggles in Mexico, EU/EFTA (Schengen Area), and in the USA (TN Visa). Or remotely...
+
 You can find me in my personal website (CV/Resumé and blog):
 
 [https://chida.me](https://chida.me)
